@@ -1,5 +1,5 @@
 # 💫 About Me:
-Final year Engineering student<br>Incoming GTE at LTIMindtree
+Final year Engineering student | Incoming GTE at LTIMindtree
 
 
 ## 🌐 Socials:
